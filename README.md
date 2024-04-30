@@ -1,7 +1,7 @@
 <html>
 
 <head>
-<title>突 破 网 络 封 锁 </title>
+突 破 网 络 封 锁
 <meta name="GENERATOR" content="Microsoft FrontPage 3.0">
 </head>
 
@@ -64,6 +64,25 @@
 &nbsp;&nbsp;&nbsp; <a href="http://www.box.net/shared/u3r36xxdlk">地址五</a> 
 &nbsp;&nbsp;&nbsp;<br>
 <br>
+
+
+
+
+
+
+&nbsp;&nbsp;&nbsp; 索 取 自 由 门 地 址：<br>
+
+&nbsp;&nbsp;&nbsp; <a href="ziyoumen99@gmail.com">ziyoumen99@gmail.com</a> 
+&nbsp;&nbsp;&nbsp;<br>
+&nbsp;&nbsp;&nbsp; <a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
+&nbsp;&nbsp;&nbsp;<br>
+
+<br>
+
+
+
+
+
 
 
 
