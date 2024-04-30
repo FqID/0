@@ -1,8 +1,7 @@
 <html>
 
 <head>
-<p><font color="#008000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁</strong><br>
-<meta name="GENERATOR" content="Microsoft FrontPage 3.0">
+<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁</strong></font></big></p>
 </head>
 
 <body>
