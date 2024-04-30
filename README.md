@@ -11,22 +11,9 @@
 
 <body>
 
-<p><font color="#008000"><strong>背 景 资 料：</strong><br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 审&nbsp; 查&nbsp; 或&nbsp; 突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁，有&nbsp;  
-人&nbsp; 简&nbsp; 称&nbsp; 为“破&nbsp; 网”，俗&nbsp; 称“翻&nbsp; 墙”，是&nbsp; 指&nbsp; 针&nbsp; 对&nbsp; 互&nbsp; 联&nbsp; 网&nbsp; 审&nbsp; 查&nbsp; 封&nbsp; 锁&nbsp; 的&nbsp; 限&nbsp; 制，绕&nbsp; 过&nbsp; 相&nbsp; 应&nbsp; 
-  &nbsp; 的&nbsp;I &nbsp; P &nbsp; 封&nbsp; 锁、内&nbsp; 容&nbsp; 过&nbsp; 滤、域&nbsp; 名&nbsp; 劫&nbsp; 持 &nbsp; 
-等，实&nbsp; 现&nbsp; 对&nbsp; 网&nbsp; 络&nbsp; 内&nbsp; 容&nbsp; 的&nbsp; 访&nbsp; 问。相&nbsp; 应&nbsp; 的&nbsp; 软&nbsp; 件&nbsp; 有&nbsp; 人&nbsp; 称&nbsp; 为“破&nbsp; 
-网&nbsp; 软&nbsp; 件”、也&nbsp; 有&nbsp; 叫&nbsp; 作“翻&nbsp; 墙&nbsp; 工&nbsp; 具”。</font><br>
-</p>
-
 <p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁 － － 动&nbsp; 态&nbsp; 网&nbsp; 及&nbsp; 自&nbsp; 
 由&nbsp; 门</strong></font></big></p>
 
-<p><font color="#E001C5"><strong>温&nbsp; 馨&nbsp; 提&nbsp; 示：</strong><br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp; 用 “自&nbsp; 由&nbsp; 门” 是&nbsp; 最&nbsp; 简&nbsp; 单、 安&nbsp; 全&nbsp; 的 
-突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp; 方&nbsp; 法，请&nbsp; 及&nbsp; 时&nbsp; 下&nbsp; 载 “自&nbsp; 由&nbsp; 门” 软&nbsp; 件，一&nbsp; 劳&nbsp; 
-永&nbsp; 逸。</font><font color="#F1015B"><br>
-</font><br>
 
 
 <font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 寻&nbsp; 找&nbsp; 动&nbsp; 态&nbsp; 网：</strong><br>
