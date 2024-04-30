@@ -44,6 +44,7 @@
 
 
 <font color="#0000A0"><strong>使 用 自 由 门 上 动 态 网：</strong><br>
+
 &nbsp;&nbsp;&nbsp; 双 击 自 由 门 软 件 即 可 运 行，自 动 打 开 动 态 
 网；退 出 自 由 门 时，自 动 关 闭 被 封 锁 的 网 站。<br>
 
@@ -51,7 +52,7 @@
 
 
 
-&nbsp;&nbsp;&nbsp; 下 载 自 由 门 地 址：<br>
+<font color="#0000A0"><strong>下 载 自 由 门 地 址：</strong><br>
 
 &nbsp;&nbsp;&nbsp; <a href="http://www.box.net/shared/u3r36xxdlk">地址一</a> 
 &nbsp;&nbsp;&nbsp;<br>
@@ -70,7 +71,11 @@
 
 
 
-&nbsp;&nbsp;&nbsp; 索 取 自 由 门 地 址：<br>
+<font color="#0000A0"><strong> 索 取 自 由 门 地 址：</strong><br>
+
+&nbsp;&nbsp;&nbsp; 使用海外信箱寄一封信(主题不可空白)到以下邮址约十分钟就可以收到下载点。
+索取自由门邮箱。<br>
+
 
 &nbsp;&nbsp;&nbsp; <a href="ziyoumen99@gmail.com">ziyoumen99@gmail.com</a> 
 &nbsp;&nbsp;&nbsp;<br>
