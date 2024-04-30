@@ -8,12 +8,12 @@
 
 <body>
 
-<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁 － － 动&nbsp; 态&nbsp; 网&nbsp; 及&nbsp; 自&nbsp; 
+<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁 ————动&nbsp; 态&nbsp; 网&nbsp; 及&nbsp; 自&nbsp; 
 由&nbsp; 门</strong></font></big></p>
 
 
 
-<font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 寻&nbsp; 找&nbsp; 动&nbsp; 态&nbsp; 网：</strong><br>
+<font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 上&nbsp; 动&nbsp; 态&nbsp; 网：</strong><br>
 
 
 &nbsp;&nbsp;&nbsp; <a href="https://dculvamwvrb2f.cloudfront.net/?c5Z1gBCJu=1T&90OR0WrX=M8sDkJts4&tPpYpgYOIL_=Toh6Nk&GFJi5B7DF=uUjFk9-Jv8XbP5A#">地址一</a> 
@@ -34,7 +34,7 @@
 
 
 
-<font color="#0000A0"><strong>下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 地&nbsp; 址：</strong><br>
+
 
 &nbsp;&nbsp;&nbsp; <a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip">地址一</a> 
 &nbsp;&nbsp;&nbsp;<br>
@@ -55,10 +55,7 @@
 
 <font color="#0000A0"><strong> 索&nbsp; 取&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 地&nbsp; 址：</strong><br>
 
-&nbsp;&nbsp;&nbsp; 使&nbsp; 用&nbsp; 海&nbsp; 外&nbsp; 信&nbsp; 箱&nbsp; 寄&nbsp; 一&nbsp; 封&nbsp; 信&nbsp; (&nbsp; 主&nbsp; 题&nbsp; 不&nbsp; 可&nbsp; 空&nbsp; 白&nbsp; )&nbsp; 到&nbsp; 以&nbsp; 下&nbsp; 邮&nbsp; 址&nbsp; 约&nbsp; 十&nbsp; 分&nbsp; 钟&nbsp; 就&nbsp; 可&nbsp; 以&nbsp; 收&nbsp; 到&nbsp; 下&nbsp; 载&nbsp; 点。
-索&nbsp; 取&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 邮&nbsp; 箱。<br>
-
-
+&nbsp;&nbsp;&nbsp; 使&nbsp; 用&nbsp; 海&nbsp; 外&nbsp; 信&nbsp; 箱&nbsp; 索&nbsp; 取&nbsp， 主&nbsp; 题&nbsp; 不&nbsp; 可&nbsp; 空&nbsp; 白&nbsp; ，约&nbsp; 十&nbsp; 分&nbsp; 钟&nbsp; 。
 &nbsp;&nbsp;&nbsp; <a href="ziyoumen99@gmail.com">ziyoumen99@gmail.com</a> 
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
