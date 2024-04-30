@@ -1,10 +1,5 @@
 
 
-<iframe name="iFrame1" width="660" height="1300" src="https://cn.bya25.com" scrolling="no" frameborder="0"></iframe>
-
-
-
-
 <html>
 
 
