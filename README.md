@@ -31,11 +31,9 @@
 
 &nbsp;&nbsp;&nbsp; <a href="https://dculvamwvrb2f.cloudfront.net/?c5Z1gBCJu=1T&90OR0WrX=M8sDkJts4&tPpYpgYOIL_=Toh6Nk&GFJi5B7DF=uUjFk9-Jv8XbP5A#">地址一</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地址二</a> 
-&nbsp;&nbsp;&nbsp;<br>
+&nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地址二</a>
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地址三</a> 
-&nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地址四</a> 
 &nbsp;&nbsp;&nbsp;<br>
@@ -54,9 +52,9 @@
 
 <font color="#0000A0"><strong>下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 地&nbsp; 址：</strong><br>
 
-&nbsp;&nbsp;&nbsp; <a href="http://www.box.net/shared/u3r36xxdlk">地址一</a> 
+&nbsp;&nbsp;&nbsp; <a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip">地址一</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="http://www.box.net/shared/u3r36xxdlk">地址二</a> 
+&nbsp;&nbsp;&nbsp; <a href="https://github.com/freegate-release/website/archive/fglatest.zip">地址二</a> 
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="http://www.box.net/shared/u3r36xxdlk">地址三</a> 
 &nbsp;&nbsp;&nbsp;<br>
