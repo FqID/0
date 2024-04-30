@@ -14,8 +14,6 @@
 
 
 <font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 寻&nbsp; 找&nbsp; 动&nbsp; 态&nbsp; 网：</strong><br>
-&nbsp;&nbsp;&nbsp; 临&nbsp; 时&nbsp; 应&nbsp; 急&nbsp; 使&nbsp; 用，不&nbsp; 稳&nbsp; 定 。随&nbsp; 时&nbsp; 可&nbsp; 能&nbsp; 被&nbsp; 封&nbsp; 锁，请&nbsp; 下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 软&nbsp; 件&nbsp; 突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁<br>
-
 
 
 &nbsp;&nbsp;&nbsp; <a href="https://dculvamwvrb2f.cloudfront.net/?c5Z1gBCJu=1T&90OR0WrX=M8sDkJts4&tPpYpgYOIL_=Toh6Nk&GFJi5B7DF=uUjFk9-Jv8XbP5A#">地址一</a> 
@@ -32,9 +30,6 @@
 
 
 <font color="#0000A0"><strong>使&nbsp; 用&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 上&nbsp; 动&nbsp; 态&nbsp; 网：</strong><br>
-
-&nbsp;&nbsp;&nbsp; 双&nbsp; 击&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 软&nbsp; 件&nbsp; 即&nbsp; 可&nbsp; 运&nbsp; 行，自&nbsp;动&nbsp; 打&nbsp; 开&nbsp; 动&nbsp; 态&nbsp; 网；退&nbsp; 出&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 时&nbsp; ，自&nbsp; 动&nbsp; 关&nbsp; 闭&nbsp; 被&nbsp; 封&nbsp; 锁&nbsp; 的&nbsp; 网&nbsp; 站&nbsp; 。<br>
-
 
 
 
