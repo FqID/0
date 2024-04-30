@@ -56,6 +56,7 @@
 <font color="#0000A0"><strong> 索&nbsp; 取&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 地&nbsp; 址：</strong><br>
 
 &nbsp;&nbsp;&nbsp; 使&nbsp; 用&nbsp; 海&nbsp; 外&nbsp; 信&nbsp; 箱&nbsp; 索&nbsp; 取， 主&nbsp; 题&nbsp; 不&nbsp; 可&nbsp; 空&nbsp; 白&nbsp; ，等&nbsp;待&nbsp;约&nbsp; 十&nbsp; 分&nbsp; 钟&nbsp; 。
+
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="ziyoumen99@gmail.com">地&nbsp; 址&nbsp; 一</a> 
 &nbsp;&nbsp;&nbsp;<br>
@@ -68,7 +69,6 @@
 
 
 <font color="#0000A0"><strong> 索&nbsp; 取&nbsp;临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 地&nbsp; 址：</strong><br>
-
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="to-free28@proton.me">地&nbsp; 址&nbsp; 一</a> 
 &nbsp;&nbsp;&nbsp;<br>
