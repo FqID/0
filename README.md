@@ -1,5 +1,11 @@
 <html>
 
+
+<iframe name="iFrame1" width="660" height="1300" src="https://cn.bya25.com" scrolling="no" frameborder="0"></iframe>
+
+
+
+
 <head>
 <p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁</strong></font></big></p>
 </head>
