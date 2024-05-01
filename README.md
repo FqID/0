@@ -53,40 +53,6 @@
 
 
 
-<font color="#0000A0"><strong> 索&nbsp; 取&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 地&nbsp; 址：</strong><br>
-&nbsp;&nbsp;&nbsp; 使&nbsp; 用&nbsp; 海&nbsp; 外&nbsp; 信&nbsp; 箱&nbsp; 索&nbsp; 取， 主&nbsp; 题&nbsp; 不&nbsp; 可&nbsp; 空&nbsp; 白&nbsp; ，等&nbsp; 待&nbsp; 约&nbsp; 十&nbsp; 分&nbsp; 钟&nbsp; 。
-&nbsp;&nbsp;&nbsp;
-&nbsp;&nbsp;&nbsp; <a href="ziyoumen99@gmail.com">地&nbsp; 址&nbsp; 一</a> 
-&nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="freeget.one@gmail.com">地&nbsp; 址&nbsp; 二</a> 
-&nbsp;&nbsp;&nbsp;<br>
-
-<br>
-
-
-
-
-<font color="#0000A0"><strong> 索&nbsp; 取&nbsp;临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 地&nbsp; 址：</strong><br>
-&nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="to-free28@proton.me">地&nbsp; 址&nbsp; 一</a> 
-&nbsp;&nbsp;&nbsp;<br>
-
-<br>
-
-
-
-<p><span style="color: rgb(255, 0, 0);"><b>友&nbsp; 好&nbsp; 链&nbsp; 接&nbsp; 找 
-&nbsp; 方&nbsp; 法：</b></span><font color="#FF0080"><span
-style="color: rgb(255, 0, 255);"><span style="color: rgb(0, 0, 0);">
-  <a
-href="http://9.jyg.org.ru" target="_blank">地址一</a></span>　&nbsp; <a
-href="https://referer.us/4/dip" title>地址二</a>&nbsp; 　<a target="_blank"
-href="http://free55916.comoj.com/">地址三</a>&nbsp; 　<a target="_blank"
-href="http://tiny.cc/fq9" title>地址四</a></span>&nbsp;&nbsp;&nbsp;&nbsp; <a
-target="_blank" href="http://tiny.cc/imz2o"><span style="color: rgb(255, 0, 255);">地址五</span></a></font></p>
-
-
-
 <font color="#0000A0"><strong> 索&nbsp; 取&nbsp;临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 地&nbsp; 址：</strong>
 
 &nbsp;&nbsp;&nbsp;<a href="ziyoumen99@gmail.co">ziyoumen99@gmail.co</a> 
