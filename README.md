@@ -75,6 +75,15 @@
 
 
 
+<p><span style="color: rgb(255, 0, 0);"><b>友&nbsp; 好&nbsp; 链&nbsp; 接&nbsp; 找 
+&nbsp; 方&nbsp; 法：</b></span><font color="#FF0080"><span
+style="color: rgb(255, 0, 255);"><span style="color: rgb(0, 0, 0);"><a
+href="http://9.jyg.org.ru" target="_blank">地址一</a></span>　&nbsp; <a
+href="https://referer.us/4/dip" title>地址二</a>&nbsp; 　<a target="_blank"
+href="http://free55916.comoj.com/">地址三</a>&nbsp; 　<a target="_blank"
+href="http://tiny.cc/fq9" title>地址四</a></span>&nbsp;&nbsp;&nbsp;&nbsp; <a
+target="_blank" href="http://tiny.cc/imz2o"><span style="color: rgb(255, 0, 255);">地址五</span></a></font></p>
+
 
 
 
