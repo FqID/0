@@ -13,7 +13,7 @@
 
 
 
-<font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 上&nbsp; 动&nbsp; 态&nbsp; 网：</strong>
+<font color="#0000A0"><strong>临&nbsp; 时&nbsp; 通&nbsp; 道</strong>
 
 
 &nbsp;&nbsp;&nbsp; <a href="https://dculvamwvrb2f.cloudfront.net/?c5Z1gBCJu=1T&90OR0WrX=M8sDkJts4&tPpYpgYOIL_=Toh6Nk&GFJi5B7DF=uUjFk9-Jv8XbP5A#">地&nbsp; 址&nbsp; 一</a> 
@@ -29,7 +29,7 @@
 <br>
 
 
-<font color="#0000A0"><strong>下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门&nbsp; 上&nbsp; 动&nbsp; 态&nbsp; 网：</strong>
+<font color="#0000A0"><strong>下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门</strong>
 
 
 
