@@ -82,6 +82,17 @@
 
 
 
+<p>
+<a href="http://www.easycounter.com/">
+<img src="http://www.easycounter.com/counter.php?45tertwer"
+border="0" alt="stats counter"></a>
+<br><a href="http://www.easycounter.com/">page counter</a>
+
+
+
+
+
+
 
 
 
