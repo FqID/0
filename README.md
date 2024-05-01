@@ -87,6 +87,14 @@ target="_blank" href="http://tiny.cc/imz2o"><span style="color: rgb(255, 0, 255)
 
 
 
+<font color="#0000A0"><strong> 索&nbsp; 取&nbsp;临&nbsp; 时&nbsp; 通&nbsp; 道&nbsp; 地&nbsp; 址：</strong>
+
+&nbsp;&nbsp;&nbsp;<a href="ziyoumen99@gmail.co">ziyoumen99@gmail.co</a> 
+&nbsp;&nbsp;&nbsp;<a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
+
+<br>
+
+
 
 <body>
 
@@ -98,7 +106,7 @@ target="_blank" href="http://tiny.cc/imz2o"><span style="color: rgb(255, 0, 255)
 <a href="http://www.easycounter.com/">
 <img src="http://www.easycounter.com/counter.php?45tertwer"
 border="0" alt="stats counter"></a>
-<br><a href="http://www.easycounter.com/">page counter</a>
+
 
 
 
