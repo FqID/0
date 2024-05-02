@@ -11,7 +11,7 @@
 <p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp;——&nbsp; ——&nbsp;</strong></font></big></p>
 
 
-
+<a target="_blank" href="https://github.com/uuu3/u/blob/master/u.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 <font color="#0000A0"><strong>临&nbsp; 时&nbsp; 翻&nbsp; 墙&nbsp; 通&nbsp; 道&nbsp; 看&nbsp; 自&nbsp; 由&nbsp; 新&nbsp; 闻&nbsp; </strong>
 
