@@ -8,7 +8,7 @@
 
 <body>
 
-<p><big><font color="#FF0000"><strong>•&nbsp; •&nbsp; •&nbsp; 突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp; •&nbsp; •&nbsp; •&nbsp;</strong></font></big></p>
+<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp;——&nbsp; ——&nbsp;——&nbsp;</strong></font></big></p>
 
 
 
