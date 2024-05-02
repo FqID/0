@@ -23,7 +23,7 @@
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地&nbsp; 址&nbsp; 四</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地&nbsp; 址&nbsp; 五</a> 
+&nbsp;&nbsp;&nbsp; <a href="https://d3bgfezntikgy4.cloudfront.net/?_NkKt7CL_5jwG=PR-mi7oeJ&Pg9m8V5=lybfis3&GjNtB=E-UZ5UY9&MTv0X4aiXR5=gMQ&Fd=fi3t#">地&nbsp; 址&nbsp; 五</a> 
 &nbsp;&nbsp;&nbsp;<br>
 <br>
 
@@ -42,7 +42,7 @@
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://github.com/freegate-release/website/archive/fglatest.zip">地&nbsp; 址&nbsp; 四</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="https://github.com/freegate-release/website/archive/fglatest.zip">地&nbsp; 址&nbsp; 五</a> 
+&nbsp;&nbsp;&nbsp; <a href="[https://github.com/freegate-release/website/archive/fglatest.zip](https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip)">地&nbsp; 址&nbsp; 五</a> 
 &nbsp;&nbsp;&nbsp;<br>
 <br>
 
