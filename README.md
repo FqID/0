@@ -40,9 +40,9 @@
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://github.com/freegate-release/website/archive/fglatest.zip">地&nbsp; 址&nbsp; 三</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="https://github.com/freegate-release/website/archive/fglatest.zip">地&nbsp; 址&nbsp; 四</a> 
+&nbsp;&nbsp;&nbsp; <a href="https://d3bgfezntikgy4.cloudfront.net/?cdwaN2CNp=QA_gsJRcx3L&CC=JAGw&Ti1=vb4yhQ9&4dgqTjl=rc6iA&rWDSAMe=19i8qF&apJb=f_xd">地&nbsp; 址&nbsp; 四</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="[https://github.com/freegate-release/website/archive/fglatest.zip](https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip)">地&nbsp; 址&nbsp; 五</a> 
+&nbsp;&nbsp;&nbsp; <a href="https://gitlab.com/shenzhouzhengdao/w/raw/master/szzd/fgp.zip">地&nbsp; 址&nbsp; 五</a> 
 &nbsp;&nbsp;&nbsp;<br>
 <br>
 
