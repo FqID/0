@@ -18,7 +18,7 @@
 
 &nbsp;&nbsp;&nbsp; <a href="http://d38dn59fpvpudb.cloudfront.net/?vvSs46CLMuga=_FPq6&M2kabW=rWBoCu7Or&oXP7fxvDR=t93YN&Cxz1b7b8z=G72e6sG&aY=xWDGU#">地&nbsp; 址&nbsp; 一</a> 
 &nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;&nbsp; <a href="https://ddvcvakfra60e.cloudfront.net/?U8zzHkCJxCj=EWa3&RY94i7R8r=Ww&Pei9uY-2-=_SQM-uir&NJ0sNwl4LXK=DHmQn0IjE_vSmq-#">地&nbsp; 址&nbsp; 二</a>
+&nbsp;&nbsp;&nbsp; <a href="https://d1ykjppv8tbqgp.cloudfront.net/search/https://www.minghui.org/">地&nbsp; 址&nbsp; 二</a>
 &nbsp;&nbsp;&nbsp;<br>
 &nbsp;&nbsp;&nbsp; <a href="https://d3drc0qeiclm7q.cloudfront.net/?jmIGXTCN=ano7F&9HGgkZ=PlL4p9lCf&cY=Kws&0lXXMZq=o1&DcpQcQ11i=jZHp&K7F=CUxoSrvgaEF#">地&nbsp; 址&nbsp; 三</a> 
 &nbsp;&nbsp;&nbsp;<br>
