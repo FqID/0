@@ -8,8 +8,7 @@
 
 <body>
 
-<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp;————&nbsp;动&nbsp; 态&nbsp; 网&nbsp; 及&nbsp; 自&nbsp; 
-由&nbsp; 门</strong></font></big></p>
+<p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp;</strong></font></big></p>
 
 
 
