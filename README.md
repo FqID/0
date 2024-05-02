@@ -51,7 +51,7 @@
 <br>
 
 
-<a target="_blank" href="https://github.com/uuu3/u/blob/master/u.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
+<a target="_blank" href="https://github.com/sglfree/freesky"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 
 
@@ -61,13 +61,13 @@
 &nbsp;&nbsp;&nbsp;<a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
 
 <br>
-<a target="_blank" href="https://github.com/uuu3/u/blob/master/u.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
+<a target="_blank" href="https://github.com/soundofhope/www"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 &nbsp;人&nbsp;人&nbsp;传&nbsp;播&nbsp;动&nbsp;态&nbsp;网&nbsp;，&nbsp;网&nbsp;络&nbsp;封&nbsp;锁&nbsp;封&nbsp;不&nbsp;了&nbsp;。
 <body>
 
 
-<a target="_blank" href="https://github.com/uuu3/u/blob/master/u.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
+<a target="_blank" href="https://gitlab.com/shenzhouzhengdao/w/"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 <br>
 <a href="http://www.easycounter.com/">
 <img src="http://www.easycounter.com/counter.php?45tertwer"
