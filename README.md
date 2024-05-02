@@ -7,7 +7,7 @@
 
 
 <body>
-<a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/www.jpg"></a><br>
+<a target="_blank" href="https://github.com/19920513/www/tree/master"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 <p><big><font color="#FF0000"><strong>突&nbsp; 破&nbsp; 网&nbsp; 络&nbsp; 封&nbsp; 锁&nbsp;——&nbsp; ——&nbsp;</strong></font></big></p>
 
 
